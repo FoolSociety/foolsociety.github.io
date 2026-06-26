@@ -1,0 +1,1 @@
+# foolsociety.github.io
